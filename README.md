@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **imgaurigupta@gmail.com**
 
-- 📄 Know about my experiences [https://imgaurigupta1.github.io/resume/](https://imgaurigupta1.github.io/resume/)
+- 📄 More of me! [https://imgaurigupta1.github.io/resume/](https://imgaurigupta1.github.io/resume/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
